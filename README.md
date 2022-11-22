@@ -1,4 +1,4 @@
- 👋 Hi, I’m @BogdanSS89
+ 👋 Hi, I’m @BogdanSS
 
 
 <!---
